@@ -1,0 +1,1 @@
+This folder contains my poster and PPT presentation for ASAS 2025 Annual meeting July, 2025 Hollywood, Florida Link to meeting details: https://www.asas.org/meetings/annual-2025/abstract-and-program-information#:~:text=All%20presentations%20must%20be%20in,a%20total%20of%2015%20minutes.
